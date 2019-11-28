@@ -1,1 +1,0 @@
-# battennjirushi.github.io
